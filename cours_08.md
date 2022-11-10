@@ -6,5 +6,5 @@
 
 
 ### Oeuvre la moins appréciée
-Nommez l'oeuvre que vous avez le moins aimé lors de notre visite. En 2 à 3 lignes, expliquez pourquoi. L'oeuvre des animaux qui signifait le problème que cause les chasseurs en tuant les animaux et utiliser leurs fourrures. Je n'ai pas aimer!!! Parce que c'est toujours un sujet sensible pour certains et j'ai de l'empathie pour eux.
+ L'oeuvre des animaux qui signifait le problème que cause les chasseurs en tuant les animaux et utiliser leurs fourrures. Je n'ai pas aimer!!! Parce que c'est toujours un sujet sensible pour certains et j'ai de l'empathie pour eux.
 
